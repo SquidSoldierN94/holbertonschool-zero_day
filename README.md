@@ -1,1 +1,1 @@
-My first readme
+BLOOD FOR THE BLOOD GOD
